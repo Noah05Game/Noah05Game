@@ -33,4 +33,15 @@ Hiya, Im **Noah05Game** and Ive been a Roblox developer for over 5 years now.
 
 **2. Ghosting**
 
-• If you ghost me and do not respond to me in 3 days 
+• If you ghost me and do not respond to me in 3 days your commision will be canceled
+
+**3. Usage rights and ownership**
+
+• Once you have paid for the commisson you have full ownership of it, I can not do anything with the commission without your permission, you cna do anything with it resell it do whatever.
+
+**4. My rights**
+
+• I have the right to decline any request even if I am half way through it
+
+• I may showcase the commission in my portfolio unless requested otherwise.
+
