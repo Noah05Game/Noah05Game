@@ -1,16 +1,22 @@
-## Hi there 👋
+## Hi there, im Noah 👋
 
-<!--
-**Noah05Game/Noah05Game** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hiya, Im **Noah05Game** and Ive been a Roblox developer for over 5 years now.
 
-Here are some ideas to get you started:
+**My strengths are:**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• 💻 Ui design
+
+• 🌲 Modeling
+
+• 🖥️ Basic scripting
+
+**My weaknesses are:**
+
+• 🖥️ In-depth scripting
+
+• 🔴 GFX (Im learning how to currently)
+
+• 😭 Sorry to dissapoint anyone but I only accept Robux (R$) payment at the minuite!
+
+## Terms and conditions (By requesting a commission from me you agree to the following TOS)
+(These are really easy to follow)       
